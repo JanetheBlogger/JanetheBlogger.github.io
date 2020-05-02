@@ -4,12 +4,12 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Someone on the Internet
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+I like to be free as a mind and a soul. I like to be independent. I would like to show my steps to freedom if there is any. My English is bad and I feel bad about it. This is my little project so I can write.
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[diarrheaofjane@protonmail.com](mailto:diarrheaofjane@protonmail.com)
