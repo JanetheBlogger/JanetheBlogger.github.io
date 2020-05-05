@@ -13,4 +13,4 @@ Here how it goes : One brand who you like something absurd and you have to prote
 
 People get offended if you say something about by their choice of brand, and they get defensive about it. You should stop talking about things that will not effect you and you 'brand protector' stop talking about that brand, because at the end none of this matter. They want you to do this and stop being a pawn to a game. Just do whatever you like. Keep it in mind that, who ever designed the product "badly" gets paid more than you, has bigger team and spend more time on it. Sure there is some disasters but they all do it on purpose.
 
-I am sorry I keep getting into materialistic subjects, I promise next one would be different. I just get upset when people get polarized from things that does not effect them, or no benefit to them.
+I am sorry I keep getting into materialistic subjects, I promise next one would be different. I just get upset when people get polarised from things that does not effect them, or no benefit to them.
