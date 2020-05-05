@@ -1,8 +1,7 @@
 ---
 layout: post
 title: Stop the fight about brands
-subtitle: If it does not benefit you, there is no way you can win the argument.
-tags: [Apple, brand loyalty, new,]
+tags: [Apple, brand loyalty, new]
 ---
 
 The temptation of taking the bait. People can't help themselves to not take the bait. I know I do that as well but just hear me out for a second.
